@@ -1,8 +1,4 @@
-- 👋 Hi, I’m @Cossegosse
-- 👀 I’m interested in nothing atm
-- 🌱 I’m currently learning everything
-- 💞️ I’m looking to collaborate on nothing
-- 📫 How to reach me you don't
+Stalker stop being on my profile please :)
 
 <!---
 Cossegosse/Cossegosse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
