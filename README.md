@@ -1,4 +1,4 @@
-Stalker stop being on my profile please :)
+Stop stalking my profile please :)
 
 <!---
 Cossegosse/Cossegosse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
